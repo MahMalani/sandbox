@@ -2,6 +2,28 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-14 03:22 IR
+- 🗜️ [CS50x_2024_-_Lecture_0_-_Scratch.7z.001](https://github.com/MahMalani/sandbox/raw/main/dl/CS50x_2024_-_Lecture_0_-_Scratch.7z.001) `95.0MB`
+
+- 🗜️ [CS50x_2024_-_Lecture_0_-_Scratch.7z.002](https://github.com/MahMalani/sandbox/raw/main/dl/CS50x_2024_-_Lecture_0_-_Scratch.7z.002) `95.0MB`
+
+- 🗜️ [CS50x_2024_-_Lecture_0_-_Scratch.7z.003](https://github.com/MahMalani/sandbox/raw/main/dl/CS50x_2024_-_Lecture_0_-_Scratch.7z.003) `95.0MB`
+
+- 🗜️ [CS50x_2024_-_Lecture_0_-_Scratch.7z.004](https://github.com/MahMalani/sandbox/raw/main/dl/CS50x_2024_-_Lecture_0_-_Scratch.7z.004) `95.0MB`
+
+- 🗜️ [CS50x_2024_-_Lecture_0_-_Scratch.7z.005](https://github.com/MahMalani/sandbox/raw/main/dl/CS50x_2024_-_Lecture_0_-_Scratch.7z.005) `95.0MB`
+
+- 🗜️ [CS50x_2024_-_Lecture_0_-_Scratch.7z.006](https://github.com/MahMalani/sandbox/raw/main/dl/CS50x_2024_-_Lecture_0_-_Scratch.7z.006) `95.0MB`
+
+- 🗜️ [CS50x_2024_-_Lecture_0_-_Scratch.7z.007](https://github.com/MahMalani/sandbox/raw/main/dl/CS50x_2024_-_Lecture_0_-_Scratch.7z.007) `95.0MB`
+
+- 🗜️ [CS50x_2024_-_Lecture_0_-_Scratch.7z.008](https://github.com/MahMalani/sandbox/raw/main/dl/CS50x_2024_-_Lecture_0_-_Scratch.7z.008) `95.0MB`
+
+- 🗜️ [CS50x_2024_-_Lecture_0_-_Scratch.7z.009](https://github.com/MahMalani/sandbox/raw/main/dl/CS50x_2024_-_Lecture_0_-_Scratch.7z.009) `95.0MB`
+
+---
+
+
 ### 📅 2026-05-14 01:49 IR
 - 🎬 [نقشه_راه_مهندسی_نرم_افزار_و_برنامه_نویسی_حرفه‌ای.mp4](https://github.com/MahMalani/sandbox/raw/main/dl/%D9%86%D9%82%D8%B4%D9%87_%D8%B1%D8%A7%D9%87_%D9%85%D9%87%D9%86%D8%AF%D8%B3%DB%8C_%D9%86%D8%B1%D9%85_%D8%A7%D9%81%D8%B2%D8%A7%D8%B1_%D9%88_%D8%A8%D8%B1%D9%86%D8%A7%D9%85%D9%87_%D9%86%D9%88%DB%8C%D8%B3%DB%8C_%D8%AD%D8%B1%D9%81%D9%87%E2%80%8C%D8%A7%DB%8C.mp4) `79.7MB`
 
