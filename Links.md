@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-14 23:08 IR
+- 🎬 [این_سیستم_می‌تواند_جای_اینترنت_را_بگیرد؟___آموزش_ساخت_کامل.mp4](https://github.com/MahMalani/sandbox/raw/main/dl/%D8%A7%DB%8C%D9%86_%D8%B3%DB%8C%D8%B3%D8%AA%D9%85_%D9%85%DB%8C%E2%80%8C%D8%AA%D9%88%D8%A7%D9%86%D8%AF_%D8%AC%D8%A7%DB%8C_%D8%A7%DB%8C%D9%86%D8%AA%D8%B1%D9%86%D8%AA_%D8%B1%D8%A7_%D8%A8%DA%AF%DB%8C%D8%B1%D8%AF%D8%9F___%D8%A2%D9%85%D9%88%D8%B2%D8%B4_%D8%B3%D8%A7%D8%AE%D8%AA_%DA%A9%D8%A7%D9%85%D9%84.mp4) `56.5MB`
+
+---
+
+
 ### 📅 2026-05-14 22:51 IR
 - 🎬 [آموزش_وصل_شدن_تلگرام_با_نت_ملی_(روش_جدید).mp4](https://github.com/MahMalani/sandbox/raw/main/dl/%D8%A2%D9%85%D9%88%D8%B2%D8%B4_%D9%88%D8%B5%D9%84_%D8%B4%D8%AF%D9%86_%D8%AA%D9%84%DA%AF%D8%B1%D8%A7%D9%85_%D8%A8%D8%A7_%D9%86%D8%AA_%D9%85%D9%84%DB%8C_%28%D8%B1%D9%88%D8%B4_%D8%AC%D8%AF%DB%8C%D8%AF%29.mp4) `17.4MB`
 
