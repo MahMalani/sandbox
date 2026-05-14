@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-14 22:51 IR
+- 🎬 [آموزش_وصل_شدن_تلگرام_با_نت_ملی_(روش_جدید).mp4](https://github.com/MahMalani/sandbox/raw/main/dl/%D8%A2%D9%85%D9%88%D8%B2%D8%B4_%D9%88%D8%B5%D9%84_%D8%B4%D8%AF%D9%86_%D8%AA%D9%84%DA%AF%D8%B1%D8%A7%D9%85_%D8%A8%D8%A7_%D9%86%D8%AA_%D9%85%D9%84%DB%8C_%28%D8%B1%D9%88%D8%B4_%D8%AC%D8%AF%DB%8C%D8%AF%29.mp4) `17.4MB`
+
+---
+
+
 ### 📅 2026-05-14 17:57 IR
 - 🎬 [A_Pretty_Face_by_John_Escott_(English_Story_with_Subtitles).mp4](https://github.com/MahMalani/sandbox/raw/main/dl/A_Pretty_Face_by_John_Escott_%28English_Story_with_Subtitles%29.mp4) `53.2MB`
 
