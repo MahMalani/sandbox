@@ -2,6 +2,28 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-14 04:10 IR
+- 🗜️ [CS50x_2024_-_Lecture_1_-_C.7z.001](https://github.com/MahMalani/sandbox/raw/main/dl/CS50x_2024_-_Lecture_1_-_C.7z.001) `95.0MB`
+
+- 🗜️ [CS50x_2024_-_Lecture_1_-_C.7z.002](https://github.com/MahMalani/sandbox/raw/main/dl/CS50x_2024_-_Lecture_1_-_C.7z.002) `95.0MB`
+
+- 🗜️ [CS50x_2024_-_Lecture_1_-_C.7z.003](https://github.com/MahMalani/sandbox/raw/main/dl/CS50x_2024_-_Lecture_1_-_C.7z.003) `95.0MB`
+
+- 🗜️ [CS50x_2024_-_Lecture_1_-_C.7z.004](https://github.com/MahMalani/sandbox/raw/main/dl/CS50x_2024_-_Lecture_1_-_C.7z.004) `95.0MB`
+
+- 🗜️ [CS50x_2024_-_Lecture_1_-_C.7z.005](https://github.com/MahMalani/sandbox/raw/main/dl/CS50x_2024_-_Lecture_1_-_C.7z.005) `95.0MB`
+
+- 🗜️ [CS50x_2024_-_Lecture_1_-_C.7z.006](https://github.com/MahMalani/sandbox/raw/main/dl/CS50x_2024_-_Lecture_1_-_C.7z.006) `95.0MB`
+
+- 🗜️ [CS50x_2024_-_Lecture_1_-_C.7z.007](https://github.com/MahMalani/sandbox/raw/main/dl/CS50x_2024_-_Lecture_1_-_C.7z.007) `95.0MB`
+
+- 🗜️ [CS50x_2024_-_Lecture_1_-_C.7z.008](https://github.com/MahMalani/sandbox/raw/main/dl/CS50x_2024_-_Lecture_1_-_C.7z.008) `95.0MB`
+
+- 🗜️ [CS50x_2024_-_Lecture_1_-_C.7z.009](https://github.com/MahMalani/sandbox/raw/main/dl/CS50x_2024_-_Lecture_1_-_C.7z.009) `95.0MB`
+
+---
+
+
 ### 📅 2026-05-14 04:05 IR
 - 🎬 [Anti-Nightcore_-_Feel_Invincible.mp4](https://github.com/MahMalani/sandbox/raw/main/dl/Anti-Nightcore_-_Feel_Invincible.mp4) `7.2MB`
 
